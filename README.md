@@ -1,2 +1,2 @@
 # github-recitaiton-f25
-has the best burger
+Five guys has the best burgers.
